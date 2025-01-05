@@ -42,3 +42,4 @@ https://github.com/user-attachments/assets/349c7ee9-798f-4d3a-a32f-a4a0b40d51b2
 ![screenshot](https://github.com/user-attachments/assets/3eca1c83-e6ed-4172-a9d2-1e9c96d617ab)
 # Animations
 Animated shorts
+https://photos.app.goo.gl/pCz1sPUCjfsv7if77
